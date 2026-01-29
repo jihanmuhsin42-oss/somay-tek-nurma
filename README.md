@@ -1,0 +1,1 @@
+somay-tek-nurma
